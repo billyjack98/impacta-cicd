@@ -21,8 +21,6 @@
 
 ![Captura de tela de 2024-09-26 22-54-09](https://github.com/user-attachments/assets/0eac8289-80ff-43b5-81da-b9f3ccb799f8)
 
-![Captura de tela de 2024-09-26 22-54-57](https://github.com/user-attachments/assets/7bc1a1a8-8512-45f6-9f62-70909f40628f)
-
 ![Captura de tela de 2024-09-26 22-55-32](https://github.com/user-attachments/assets/98ed229c-fa31-4692-a5ce-dee627909a5d)
 
 ![Captura de tela de 2024-09-26 22-56-27](https://github.com/user-attachments/assets/ca5fb48b-77dd-4383-b1ca-5cf37ca275e0)
